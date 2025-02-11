@@ -1,0 +1,8 @@
+¿ QUE ES LA MORAL?  
+¿Estuvo bien que usaran sus órganos para otros niños que sí los ocupan? Yo pienso que sí,ya que por mucho que sea un humano no es una persona, ser una persona se necesita mucho más que solo respirar o tener reflejos,si no poder pensar por tu cuenta, tener tu propio criterio, dudar de todo de tu alrededor, etc.  
+Otra cosa es que ella jamás tendría una vida ya que como tal no tendría la oportunidad de sentir realmente que es la vida, y no tendría sentido que viviera si no puede disfrutar de todo lo que te da la vida, lo bueno y lo malo.  
+En conclusión: estuvo bien que dieran sus órganos ya que no tendría sentido que siguiera viviendo si no era consciente de sí misma, además de que con sus órganos ayudaría a muchos niños.
+
+El otro caso,en el que un padre mató a su hija ya que su hija tenía una enfermedad incurable que la iba a obligar a no tener una vida plena.  
+para mi fue un acto de amor lo que hizo el padre, porque muchas veces las personas no dejan ir a sus hijos aun sabiendo que sufrirán toda su vida por muchos factores pero más que nada por egoísmo, ya que obvio es doloroso ver partir a un hijo pero por esas razones muchas veces se olvidan de lo que siente el o la hij@, todo lo que sufre y sufrirá.  
+En algunas ocasiones donde hay esperanza de que pueda vivir feliz y saludable en un futuro obvio es mejor persistir pero cuando se sabe que toda su vida sufrirá, que nunca podrá ser feliz plenamente, y que en algunas ocasiones ni podrán hacer su vida normal esta bien mejor dejarla ir, ya que solo veras a esa persona sufriendo, y de qué sirve tener un hij@ si se supone que quieres lo mejor para ellos y el mantenerlo vivo no será lo mejor, si solo lo veras con un sufrimiento constante.
